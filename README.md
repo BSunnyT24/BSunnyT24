@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BSunnyT24
+- 👀 I’m interested in all things fun
+- 🌱 I’m currently learning my sexual desires
+- 😄 Pronouns: She
+- ⚡ Fun fact: Scorpio ♏
